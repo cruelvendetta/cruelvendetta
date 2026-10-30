@@ -1,5 +1,5 @@
 ㅤ             ＩＦ ＴＨＥ ＷＯＲＬＤ ＷＡＳ ＥＮＤＩＮＧ
 
-<img width="2326" height="1536" alt="image" src="https://github.com/user-attachments/assets/cd162ac8-ce02-4679-8d6d-ded040b90047" />
-ㅤ
+<img width="1692" height="1117" alt="image" src="https://github.com/user-attachments/assets/45d815b5-dba3-455a-9b2c-cf41e59741ee" />
+
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ    ㅤ    ㅤ    ㅤＷＯＵＬＤ ＹＯＵ ＣＯＭＥ ＯＶＥＲ ?
